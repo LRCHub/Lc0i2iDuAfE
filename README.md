@@ -1,0 +1,147 @@
+# Digable Planets – For Corners (feat. Monica Payne & Sulaiman)
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:57.73] Brooklyn got the funk
+[00:59.73] Uptown got the funk
+[01:01.89] East, West, Northside got the funk
+[01:04.67] L.A. got the funk
+[01:07.25] Boogie down got the funk
+[01:09.57] Queens do got the funk
+[01:11.95] The bottom got the funk
+[01:14.54] We got the funk
+[01:22.04] 
+[01:16.60] I'm high as the wind so I blow minds
+[01:19.27] Curb hanger and hopper at the oracle of hipster
+[01:21.61] Just like Black Caesar, my depths are fresh
+[01:24.07] 'Cause you're a fish, and I'm a water sign
+[01:26.34] My laid-back pimp walk is linear by design
+[01:28.78] Gold fronts soul I shotee now watch you shine
+[01:31.12] Me and C-Know makin' it a pundit
+[01:33.44] I'm glad to see my nigga he plush and lavish on the block
+[02:01.94] 
+[01:38.32] Cleaner than others in my form, I resort on the corners
+[01:41.31] Connect with my propers
+[01:42.66] Cop my double players
+[01:43.77] Cleo still hittin' 'til '38 pump and they up it
+[01:46.65] Yell it and could never by defunk-ed
+[01:48.52] I'm totemed in the fashionable flyers
+[01:50.37] Unscared against the palest of 'em
+[01:52.42] Gem percents unheard since I'm the storm
+[01:54.90] Donned '69 power
+[01:56.43] Blocks
+[01:59.43] 
+[01:59.72] You can check my stats, I got crazy ups baby
+[02:02.07] C-Know got style, don't play me like I'm lazy
+[02:04.79] Fadey, but never will I go out
+[02:06.20] My cl-out is known across the Crooklyn lands
+[02:09.42] My universal fans got stamina
+[02:11.52] Polar bears are fear when we step in the arena
+[02:14.12] 360 C-Know simply cyclin'
+[02:16.50] Firm as a rock print the god when I'm buildin' blocks
+[02:43.00] 
+[02:23.79] Mecca she got the funk
+[02:26.47] She got the funk, yeah
+[02:32.66] My man C-Knowledge got the funk
+[02:36.05] He got the funk, yeah
+[02:46.55] 
+[02:37.92] From the 11217, I transmit
+[02:40.37] My area is thick, my vision focused
+[02:42.61] My jitterbugs limp n' learn as I squirm
+[02:45.22] But I'm a team player, so I waits my turn
+[02:47.34] And when I get the rock, I'm going straight to the hole
+[02:49.94] My average per game is pure black soul
+[02:52.31] In the 13, X'd out the ignorance
+[02:54.45] Got the clearance to speak intelligence on the block
+[03:20.45] 
+[02:59.38] Into illusion, we drown
+[03:00.54] By forth sounds smooth enough to break you left
+[03:02.87] Another pound as my conscience get they rest
+[03:05.05] That's right, we Shaft it
+[03:06.39] Includes this pro strips as I shit, burnin', blowin'
+[03:09.23] Shakin' E-as-Allah, three different bags of proof
+[03:11.87] Why won't you swallow it approach you one time, the clearest
+[03:14.78] Finer and sharper in the hour of black steel power
+[03:17.85] Blocks
+[03:20.85] 
+[03:20.26] Son I'm divin'
+[03:21.80] I worm mork n'jeans high swarms
+[03:23.77] The nigga in the Cadillac, so watch my spokes twist
+[03:26.04] Spread him out a pound you slide me to 126
+[03:28.40] My soul-zodiac stroll with G licks
+[03:30.87] My understanding, Bill doses 7 to the 6
+[03:33.26] I pump a fist, even my hand got an ego
+[03:35.52] Id and super-id, the kid is super kid
+[03:37.91] I doozey with the young Marx plus the 7ods on the B-Line
+[04:05.91] 
+[03:47.66] Butterfly got the funk
+[03:50.32] He got the funk, yeah
+[03:57.28] Sulaiman got the funk
+[03:59.81] He got the funk, yeah
+[04:10.31] 
+[04:01.36] Ay yo here's the man
+[04:02.98] The true mastermind born n' planned
+[04:04.10] Talents skills none can withstand
+[04:07.07] So kill the sham as I speak techniques mad deep
+[04:10.10] To represent for the streets the city corners
+[04:12.43] Leave 'em hot as a sauna
+[04:14.22] Word is bond 'cause Sul the steps be on
+[04:16.61] The true original man sunset to rise with foes and those you probably, recognized on the block
+[05:03.61] 
+[04:25.78] I play my Jeff tilted c'ause I got shtyle
+[04:28.20] Like every nigga on the corner stroll with brown boots
+[04:30.85] This is our block and we do be tripping
+[04:33.25] Ringin' round the ave like sata at mad volume
+[04:35.56] I flash a slick grin, sayin' cool with nuance
+[04:37.66] The donut eater sweatin' at the blacks we all fronts
+[04:40.28] He asked my what's my name, I told him, "Mark Essex"
+[04:42.63] Sucker I got lessons forever I'm 'bout to bless it
+[04:44.93] Ay yo Sule noise it up
+[04:46.33] Blocks
+[04:49.33] 
+[04:46.59] I know you feel that you're real
+[04:48.44] Until you check the steelo, peep the crew members
+[04:50.50] Brothers like Ambush and C.0
+[04:52.63] Filthy rich down to mansey savage
+[04:54.44] Dashown, Has Kaos who's the method to your madness
+[04:57.38] Real troops so walk around with the joint so get the point
+[04:59.67] Get, get the point, get the point, get the point
+[05:02.06] And now lounge to the sounds 'cause the best spoke
+[05:04.20] I catch you on the next note
+[05:05.73] Or on the block
+[05:13.23] 
+[05:11.38] Originals got the funk
+[05:14.27] We got the funk, yeah
+[05:21.06] Hip Hop gots the funk
+[05:23.84] He keeps the funk, yeah
+[05:35.34] 
+[05:47.35] Teri got the funk
+[05:49.74] Monica got the funk
+[05:51.51] D.P.S. got the funk
+[05:54.17] 7ods got the funk
+[05:56.28] Operation from the bottom got the funk
+[05:58.61] 7 and A Crescent got the funk
+[06:01.48] Jazzy Joyce got the funk
+[06:04.06] Joi y'know she got the funk
+[06:06.42] Ruth there he got the funk
+[06:09.04] Pudgee straight got the funk
+[06:23.04] 
+[06:11.01] The streets got all the funk
+[06:13.48] Three T's got all the funk
+[06:15.79] Zhane got the funk
+[06:18.40] HB got the funk
+[06:20.29] Little P.O's haven't got the funk
+[06:23.02] Beneficient got the funk
+[06:25.24] Actual Facts haven't got the funk
+[06:28.08] Soul Foods got the funk
+[06:39.58] 
+[06:30.15] K.B. got the funk
+[06:32.75] Rodo got the funk
+[06:34.61] Brother Arthur 4 got the funk
+[06:37.80] T.E. got the funk
+[06:40.02] Dave got the funk
+[06:42.48] Dex got the funk
+[06:44.75] Watch Prophets got the funk
+[06:47.62] We got the funk, yeah
+```
