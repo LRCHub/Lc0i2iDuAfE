@@ -1,0 +1,24 @@
+{
+  "version": 1,
+  "base_track": "For Corners (feat. Monica Payne & Sulaiman)",
+  "base_artist": "Digable Planets",
+  "createdAt": "2026-03-18T00:53:52.965532Z",
+  "candidates": [
+    {
+      "id": "lrclib_1",
+      "source": "lrclib",
+      "title": "For Corners (feat. Monica Payne)",
+      "artist": "Digable Planets",
+      "has_synced": true,
+      "path": "select/01_For_Corners_(feat._Monica_Payne)_Digable_Planets.lrc"
+    },
+    {
+      "id": "lrclib_2",
+      "source": "lrclib",
+      "title": "For Corners (Feat. Monica Payne and Sulaiman)",
+      "artist": "Digable Planets",
+      "has_synced": false,
+      "path": "select/02_For_Corners_(Feat._Monica_Payne_and_Sulaiman)_Digable_Planets.txt"
+    }
+  ]
+}
